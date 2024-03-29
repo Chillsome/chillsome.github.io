@@ -1,1 +1,1 @@
-[chillsome.github.io](https://chillsome.github.io/)
+[davidmojica.dev](https://www.davidmojica.dev)
